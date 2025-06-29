@@ -28,7 +28,7 @@ https://youtu.be/Wy7lsdvmWpk?si=u2ONzwQQ2p0eAN4d&t=1569
 >
 > This is a fantastic way to free yourself from the emotional ping pong game of just, let me expose myself to social media algorithmic content, let me choose a tribe and make that tribe make me feel good or scared and help me get mad about the other tribe.
 >
-> It gets you out of that trap and allows you to begin building your own understanding of things .
+> It gets you out of that trap and allows you to begin building your own understanding of things.
 >
 > You're worried about AI start building out this document.
 >
